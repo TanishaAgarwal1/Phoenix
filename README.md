@@ -1,7 +1,7 @@
 # Phoenix
-News &amp; Opportunity 
-# Phoenix
 
+
+***News &amp; Opportunity***
 
 ### About
 
